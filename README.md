@@ -1,0 +1,1 @@
+An interactive choose-your-own-adventure story where a young explorer journeys to Mount Kilimanjaro in search of a legendary hidden treasure. Players make choices that shape the adventure, with wise decisions leading to success and poor choices ending the quest. The story highlights the importance of preparation, good judgment, and listening to valuable advice.
